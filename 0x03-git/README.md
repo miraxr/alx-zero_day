@@ -1,1 +1,1 @@
-Coding is fun but tough
+Never give up on your dreams
