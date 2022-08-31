@@ -1,1 +1,1 @@
-Coding is fun, I know right
+Coding is fun but tough
